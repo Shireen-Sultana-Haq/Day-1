@@ -6,9 +6,9 @@ Knowledgeable and skillful
 Empathetic and understanding
 Avaiability and expertise
 Expectations from ourselves
-Punctuality
+Punctuality and perseverence
 Adaptability and growth mindedness
-Respectful
+Respectful and helpful
 Active participation
 communicative
 
