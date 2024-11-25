@@ -13,6 +13,22 @@ Active participation
 communicative
 
 
+Things common with my colleagues
+Peter - Overseas
+Shirdeen - Melbourne based
+Shreyashi - from India
+Muirelle - sweet tooth
+Nisha- India
+Priyanka - Melbourne based
+James - cooking
+Pooja - Hyderabad, India
+Nikita-Horror movies
+Nathan - Asian
+Ciara - Coffee lover
+Rhea - Overseas.
+
+
+
 
 
 
