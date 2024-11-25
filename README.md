@@ -14,6 +14,7 @@ communicative
 
 
 Things common with my colleagues
+
 Peter - Overseas
 Shirdeen - Melbourne based
 Shreyashi - from India
